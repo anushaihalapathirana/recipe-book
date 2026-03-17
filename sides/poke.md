@@ -15,4 +15,4 @@
 
 ## Instructions
 
-Mix ingredients in a bowl.
+Mix all the ingredients together.
